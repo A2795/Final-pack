@@ -1,1 +1,1 @@
-During the semester, I have attended each class session, and I documented in the attendance sign-in booklet too.
+During the semester, I haven't missied any class, I attended each class session, and I documented in the attendance sign-in booklet too.
